@@ -10,6 +10,7 @@ When he nothing shines upon,
 Then you show your little light,
 Twinkle, twinkle, all the night.
 
+
 Then the trav'ller in the dark,
 Thanks you for your tiny spark,
 He could not see which way to go,
@@ -24,3 +25,4 @@ Till the sun is in the sky.
 Lights the trav'ller in the dark:
 Tho' I know not what you are,
 Twinkle, twinkle, little star.
+
