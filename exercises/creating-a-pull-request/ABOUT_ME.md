@@ -1,7 +1,7 @@
 # About me
 
-## Shakti Prasad Nanda - name
+## Shakti Prasad Nanda
 
-Hi I am **Shakti** !
-*I like experimenting stuffs and curious about stuff that people find mundane.*
-> Thank You.
+Hi, I am **Shakti** !
+*I like to spend time doing creative stuff and also enjoy leaning new things. *
+Thank You.
