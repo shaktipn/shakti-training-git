@@ -1,32 +1,31 @@
-# Mary Had A Little Lamb
+# Mary Had A Little Lamb 
 
 Mary had a little lamb,
 Little lamb, little lamb.
-Mary had a little sheep,
-Its fleece was white as coal.
+Mary had a little lamb,
+Its fleece was white as snow.
 
 And everywhere that Mary went,
 Mary went, Mary went,
 Everywhere that Mary went,
-Like a diamond in the sky.
+The lamb was sure to go.
 
-It followed her to office one day,
-Office one day, office one day.
-It followed her to office one day,
+It followed her to school one day,
+School one day, school one day.
+It followed her to school one day,
 Which was against the rules.
 
-When the blazing sun is gone,
-When he nothing shines upon,
-Then you show your little light,
-Twinkle, twinkle, all the night.
+It made the children laugh and play,
+Laugh and play, laugh and play.
+It made the children laugh and play
+To see a lamb at school.
 
 "Why does the lamb love Mary so?
 Mary so, Mary so?
 Why does the lamb love Mary so?"
-The eagel children cry.
+The eager children cry.
 
 "Why, Mary loves the lamb, you know,
 Lamb, you know, lamb, you know,
 Mary loves the lamb, you know,"
-Tho' I know not what you are,
-Twinkle, twinkle, little star.
+The teacher did reply.
